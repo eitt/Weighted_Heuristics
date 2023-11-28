@@ -18,5 +18,4 @@ Henry Lamos-Diaz [hlamos@uis.edu.co](mailto:http://hlamos@uis.edu.co)
 
 Toni Granollers [toni.granollers@udl.cat](mailto:http://toni.granollers@udl.cat)
 
-Jordi Virgili [jordi.virgili@udl.cat](mailto:http://jordi.virgili@udl.cat)
 
